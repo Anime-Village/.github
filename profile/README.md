@@ -1,1 +1,1 @@
-![wallpaper-mania com_High_resolution_wallpaper_background_ID_77700098273](https://user-images.githubusercontent.com/92864027/219285264-10d3bd22-e3b9-43f6-985c-91f2e9a71ab5.jpg)
+![Group 1](https://user-images.githubusercontent.com/92864027/219288790-da9f59fd-0c87-437b-a6ed-c4e54db704ab.svg)
